@@ -7,4 +7,5 @@
  seis e cinquenta e cinco, e saio 
  meio dia e meia, e chego em casa meio dia 
  e quarenta, vou pro trabalho uma hora
+ depois do trabalho, vou ora casa 
  
